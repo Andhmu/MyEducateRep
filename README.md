@@ -1,1 +1,1 @@
-# MyEducateRep
+# My Educate Rep
